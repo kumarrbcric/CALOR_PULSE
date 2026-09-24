@@ -1,1 +1,0 @@
-# CALOR_PULSE
